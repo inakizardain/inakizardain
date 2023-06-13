@@ -1,6 +1,4 @@
-### Hi there, hope you are doing great 🙌
-
-My name is Iñaki and I'm thrilled you came across my portfolio. Hope you enjoy it 😄.
+### Welcome to my portfolio 
 
 ### Allow me to introduce myself briefly 🧑
 
